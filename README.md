@@ -1,1 +1,0 @@
-# godads.ai
